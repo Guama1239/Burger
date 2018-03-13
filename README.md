@@ -10,7 +10,7 @@
  ![adding even more](addingmorehambs.png)
 
  ## Enjoy the all, they are yours...
- ![devoured them in any order you want](devoured them in any order you want.png)
+ ![devoured them in any order you want](devouredtheminanyorderyouwant.png)
 
  ## They are all yours
- ![devoured them in any order you want](they are all yours.png)
+ ![devoured them in any order you want](theyareallyours.png)
